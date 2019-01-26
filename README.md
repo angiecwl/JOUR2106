@@ -6,11 +6,11 @@ Here is a test edit.
 * item 2
 * item 3
 
-##Head 2
+## Head 2
 
-###Head
+### Head
 
-##Heading 2
+## Heading 2
 
 Here is my photo:
 
