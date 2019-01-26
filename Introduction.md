@@ -17,8 +17,6 @@ A true geek at heart, I enjoy things that range from but not limited to:
 * mainstream music
 * and memes.
 
-## Here's my face:
-
-Here is my photo:
+## Here's my face: (When I'm not tired, which is rare.)
 
 ![](https://angeliquechan.files.wordpress.com/2018/05/img_9846.jpg?w=338&h=600)
