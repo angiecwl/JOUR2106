@@ -17,7 +17,7 @@ Topics that interests me:
 * sexuality
 
 ### Here's more about me:
-In Summer 2018, I spent three months at the Hong Kong office of The New York Times, in which one of my proudest moments is <a href="https://www.nytimes.com/2018/08/22/world/asia/hong-kong-schools-.html" title="this">this</a>, when I was able to put one of my passions, children and education, into another (journalism of course).
+In Summer 2018, I spent three months at the Hong Kong office of The New York Times, in which one of my proudest moments is <a href="https://www.nytimes.com/2018/08/22/world/asia/hong-kong-schools-.html target="_blank"" title="this">this</a>, when I was able to put one of my passions, children and education, into another (journalism of course).
 
 I lead a very weird life which you may or may not find out, but this is me in my natural state:
 ![](https://angeliquechan.files.wordpress.com/2019/01/profile-pic-1x1.jpg?w=410&h=410)
